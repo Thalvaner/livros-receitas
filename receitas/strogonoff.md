@@ -12,16 +12,16 @@
 - 3 colheres (sopa) de purê de tomate
 - 1 colher (sopa) de mostarda
 - 2 colheres (sopa) de ketchup
-- 1 lata de NESTLÉ® Creme de Leite
+- 1 lata de creme de Leite
 
 ### Modo de preparo
 
-1. Em uma frigideira grande, derreta três colheres (sopa) da manteiga e doure o frango, aos poucos, em fogo alto.
+1. Em uma frigideira grande, derreta a manteiga e doure o frango em fogo alto.
 2. Retire a carne e coloque a manteiga restante.
 3. Doure a cebola, junte o frango, tempere com o sal e a pimenta. Despeje o conhaque, espere aquecer e incline levemente a frigideira para flambar o conhaque. Aguarde acabar a chama.
 4. Junte os champignons, tampe a frigideira e deixe por alguns minutos.
 5. Acrescente o purê de tomate, a mostarda e o ketchup, misture bem. Abaixe o fogo, deixe por cerca de 5 minutos, com a frigideira tampada.
-6. Incorpore delicadamente o NESTLÉ Creme de Leite e retire do fogo antes de ferver.
+6. Incorpore o Creme de Leite sem deixar ferver.
 7. Sirva com arroz branco.
 
 
